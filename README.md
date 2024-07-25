@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Angel.
+- 👀 I’m interested in teamwork and leadership, because those are my weaknesses, and I want to improve them.
+- 🌱 I’m currently learning different languages and a little about software engineering, but nothing serious.
+- 💞️ I’m looking to collaborate on any project that specializes in video editing, as it's one of my hobbies and strengths 
+- 📫 You can reach me in discord (ain7848)
+- 😄 Pronouns: Male. He/Him
+- ⚡ Fun fact: I have done video editing since I was 10 years old and, even if it wasn't serious, I can say that I have 4 years of experience and will try my hardest to achieve what is needed. Although this is nothing serious for now, I seek personal growth at a young age and think this summer is my chance to improve my skills early.
